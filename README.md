@@ -31,7 +31,7 @@ I am open to **collaborative projects, research, and internships** in:
 ## 🔗 **Connect with Me!**  
 🚀 Feel free to reach out for **collaborations, research discussions, or networking**:  
 - **LinkedIn**: [Yusuf Shuaib Olalekan](https://www.linkedin.com/in/yusuf-shuaib-olalekan)  
-- **GitHub**: [Your GitHub Username]  
+- **GitHub**: [You-soof](https://github.com/you-soof) 
 - **Email**: shuaib.yusuf.olalekan@gmail.com  
 
 
